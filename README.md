@@ -1,0 +1,1 @@
+# AutoNegotiatorCPU-By-J.H.
